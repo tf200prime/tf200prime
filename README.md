@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @tf200prime
+- 👀 I’m interested in ... hacking
+- 🌱 I’m currently learning ... python, C++, assembly
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ... xshinenx.s@gmail.com
+- 😄 Pronouns: ... he/him
+- ⚡ Fun fact: ... im bad in basic human conversation
